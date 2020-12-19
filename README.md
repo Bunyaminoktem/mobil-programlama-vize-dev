@@ -1,0 +1,1 @@
+# mobil-programlama-vize-dev
